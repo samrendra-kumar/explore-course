@@ -1,3 +1,3 @@
-# explore-place
-plan your journey with us ,book and explore the unique beauty of india 
-you can see the rich traditional values associated with each place 
+# explore-course
+Are you a beginner looking for perfect interest in which carrer to be made up of ?
+then this is for you ,explore all the course find which suits you up the most 
